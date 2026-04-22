@@ -7,3 +7,7 @@ twst-Ace-Deuce-Cursor
 Thanks for liking my work! have fun with it!
 ❌ No commercial use / No reposting / No claiming as your own / No editing.
 ⭕ Sharing in any form (with credit) / using freely / use with other cursors.
+
+匿名意見箱 / Anonymous Inbox
+(無關鼠標的事也可以投！/ Off-topic messages are welcome too!)
+https://marshmallow-qa.com/nyako_1012?t=o1NuzB&utm_medium=url_text&utm_source=promotion
