@@ -1,0 +1,9 @@
+📍How to Change My Cursor?
+
+對桌面點滑鼠右鍵->個人化->佈景主題->滑鼠游標->自訂指標影像
+
+Right-click on the desktop -> Personalize -> Themes -> Mouse cursor -> Customize
+
+デスクトップを右クリック -> 個人用設定 -> テーマ -> マウス カーソル -> カスタマイズ
+
+바탕 화면 우클릭 -> 개인 설정 -> 테마 -> 마우스 커서 -> 사용자 지정
