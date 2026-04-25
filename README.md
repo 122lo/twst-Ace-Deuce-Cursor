@@ -19,3 +19,8 @@ Thanks for liking my work! Hope you enjoy it ✨
 （無關鼠標的事也可以投！/ Feel free to send anything!）  
 https://marshmallow-qa.com/nyako_1012?t=o1NuzB&utm_medium=url_text&utm_source=promotion
 </sub>
+
+--
+📕✏️更新日誌
+26.04.23 動態鼠標(制服ver.)+舊鼠標一併上傳
+26.04.25 新增方向鼠標
