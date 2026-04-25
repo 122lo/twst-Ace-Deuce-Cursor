@@ -21,6 +21,7 @@ https://marshmallow-qa.com/nyako_1012?t=o1NuzB&utm_medium=url_text&utm_source=pr
 </sub>
 
 --
-📕✏️更新日誌
-26.04.23 動態鼠標(制服ver.)+舊鼠標一併上傳
-26.04.25 新增方向鼠標
+
+- 📕✏️更新日誌
+- 26.04.23 動態鼠標(制服ver.)+舊鼠標一併上傳
+- 26.04.25 新增方向鼠標
